@@ -1,0 +1,1 @@
+repo ini merupakan seluruh hasil studi independen saya bersama ruang guru.
